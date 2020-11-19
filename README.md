@@ -2,5 +2,5 @@
 - 🚀 16 Years Old
 - 🌎 México
 - 🔥 YT: https://youtube.com/zGhosty 
-- 💬 Discord: Ghosty~ᵛᵇ 🥀#2554
+- 💬 Discord: Ghosty,~ᵛᵇ, 𝖑𝖘𝖖#2554
 - 📫 Email: imemotional12@gmail.com
